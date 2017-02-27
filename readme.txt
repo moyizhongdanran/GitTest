@@ -20,3 +20,4 @@ A good beginning is half done
 争渡争渡 惊起一滩鸥鹭
 红豆生南国 春来发几枝
 愿君多采撷 此物最相思
+共饮一江水
